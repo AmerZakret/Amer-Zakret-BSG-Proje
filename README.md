@@ -1,1 +1,0 @@
-# Amer-Zakret-BSG-Proje
